@@ -40,4 +40,4 @@ Este proyecto se encuentra liberado de derechos y su uso es completamente libre.
 
 ### 🔗 Recursos Adicionales
 
-- [Mi perfil en GitHub](https://github.com/Albaseri)
+- [Mi perfil en LinkedIn](https://www.linkedin.com/in/alba-sede%C3%B1o-168895114/)
